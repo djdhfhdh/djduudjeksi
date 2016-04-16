@@ -1,0 +1,2 @@
+# djduudjeksi
+minato
